@@ -1,4 +1,4 @@
-# Hi there, I'm [Your Name]! 👋
+# Hi there, I'm Anita! 👋
 
 https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcSf7IDpG97DKt7kbUCUZ21NFn8od0DlW1j9oQ&s
 
